@@ -64,16 +64,3 @@
 ---
 
 ✨ **Thanks for stopping by! Let’s build something cool together 🚀**  
-)  
-📷 **Instagram:** [instagram.com/sandi.rh](https://instagram.com/sandi.rh)  
-
----
-
-### 💬 Fun & Philosophy  
-- 🌟 *“Every failed compile brings me closer to perfection.”*  
-- 🔥 *“Debugging isn’t punishment—it’s enlightenment.”*  
-- 🎯 *“Dream it. Build it. Improve it.”*  
-
----
-
-✨ **Thanks for stopping by! Let’s build something cool together 🚀**  
