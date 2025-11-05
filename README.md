@@ -51,11 +51,6 @@
 
 ---
 
-### 🌐 Connect With Me  
-📷 **Instagram:** [instagram.com/sandi_rhman](https://instagram.com/sandi_rhman)  
-
----
-
 ### 💬 Fun & Philosophy  
 - 🌟 *“Every failed compile brings me closer to perfection.”*  
 - 🔥 *“Debugging isn’t punishment—it’s enlightenment.”*  
